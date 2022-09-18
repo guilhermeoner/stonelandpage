@@ -1,2 +1,0 @@
-# stonelandpage
-STONE LANDPAGE 
